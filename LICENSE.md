@@ -1,4 +1,4 @@
-# 
+# professional bot de negociação FTX addons é o melhor bot de negociação FTX addons com baixa frequência e take-profit. Seguro, confiável e otimizado para estratégias de negociação
 
 
 
